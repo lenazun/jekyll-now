@@ -7,5 +7,7 @@ title: Today's notes
 
 * I'm glad Americans are finally confronting what the rest of the world knows: anyone can be president. 
 
-* Reading Hanna Arendt saves me temporarily from the oversimplified manichaeism of Twitter politics. It's like taking a dip on a pool of doubt, nuance, historical questions, context and analysis. 
+* Reading Hanna Arendt saves me temporarily from the oversimplified manichaeism of Twitter politics. It's like taking a dip in a pool of doubt, nuance, historical questions, context and analysis. Refreshing!
+
+* Today's reading: Lies. [http://www.liesjournal.net/](http://www.liesjournal.net/) I started reading this piece [Caring, A Labor of Stolen Time](http://www.liesjournal.net/volume1-06-caring.html)
 
